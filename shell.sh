@@ -1,5 +1,2 @@
 Kuldeepak Gupta
-1471 
-
-
-yes
+1471
